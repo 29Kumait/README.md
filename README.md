@@ -1,4 +1,4 @@
-<div style="text-align: right"> 
+<div align="right">
   
 . ![image](https://github.com/29Kumait/29Kumait/assets/137179507/4ac2087a-e3f5-4f02-8feb-3ba5ad47bef1)
   -  ![image](https://github.com/29Kumait/29Kumait/assets/137179507/c09a2608-8194-4374-a4fb-35bbd16b3b33)![image](https://github.com/29Kumait/29Kumait/assets/137179507/79f02909-2de6-427f-8510-5d946e62fbd6)   ![image](https://github.com/29Kumait/29Kumait/assets/137179507/c48e5d81-8dce-4693-9f45-e159c69adcda) &nbsp; &nbsp; &nbsp;  ![image](https://github.com/29Kumait/29Kumait/assets/137179507/413c02a6-f83a-4e00-9191-8eea7e9edde6)
